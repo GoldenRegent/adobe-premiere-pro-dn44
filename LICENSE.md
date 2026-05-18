@@ -1,4 +1,4 @@
-# 
+# Exclusivo Adobe Premiere Pro para PC scripts es el mejor Adobe Premiere Pro para PC scripts con incrustación de pantalla verde y estabilización de video. Seguro, confiable y
 
 
 
